@@ -10,3 +10,5 @@
 
 
 # VIEWSby.eJ
+
+The year is 2021, im back to say, i understand all the things i did here now...🤭
